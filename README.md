@@ -2,4 +2,4 @@
 
 Impairment Arcade link: https://impairmentarcadevr.com/
 
-Tennesee Stanton Link: https://tnstanton.com/
+Tennessee Stanton Link: https://tnstanton.com/
